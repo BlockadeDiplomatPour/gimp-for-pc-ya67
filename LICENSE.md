@@ -1,4 +1,4 @@
-# 
+# instant GIMP for PC | GIMP for Windows Brush Pack | adjustment-layers + color-correction is the best GIMP for PC | GIMP for Windows brush, featuring adjustment-layers and
 
 
 
